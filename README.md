@@ -11,4 +11,4 @@
 # why wasteeeeeee.. ??
 # live your life go out.
 # that I"ll go at around 8:30 
-# bored try this https://www.crazygames.com/game/worldguessr?czy_invite=true&utm_source=invite&czy_invite_params=code%3D576923
+# bored try this https://www.crazygames.com/game/worldguessr?czy_invite=true&utm_source=invite&czy_invite_params=code%3D621592
