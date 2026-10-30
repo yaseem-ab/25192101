@@ -17,3 +17,4 @@
 # how youh feelin!! after one whole day of java!!!?
 # yebooo java inni life le deyko illa ...... ippa neeen endro akyo ullo?
 # Alle ippa neen beliyo aal alle nak reply akilla alle....
+# adh game ro nadul inna alle
