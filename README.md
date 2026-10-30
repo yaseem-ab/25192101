@@ -18,3 +18,4 @@
 # yebooo java inni life le deyko illa ...... ippa neeen endro akyo ullo?
 # Alle ippa neen beliyo aal alle nak reply akilla alle....
 # adh game ro nadul inna alle
+# wow so you are comparing our friendship to a game . clearly the priority can be seen.
