@@ -20,3 +20,4 @@
 # adh game ro nadul inna alle
 # wow so you are comparing our friendship to a game . clearly the priority can be seen.
 # compare akitla !!!sorry
+# everything cant be fixed by a sorry.
