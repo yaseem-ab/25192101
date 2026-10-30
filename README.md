@@ -22,3 +22,4 @@
 # compare akitla !!!sorry
 # everything cant be fixed by a sorry.
 # ok if sorry can't fix it what shall do!!?
+# wow now that also you are asking me only how to fix it….
