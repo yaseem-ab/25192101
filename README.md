@@ -21,3 +21,4 @@
 # wow so you are comparing our friendship to a game . clearly the priority can be seen.
 # compare akitla !!!sorry
 # everything cant be fixed by a sorry.
+# ok if sorry can't fix it what shall do!!?
